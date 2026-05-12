@@ -1,4 +1,4 @@
-# 
+# Get the ultimate bitmex trading bot with premium Automation Script for bitmex trading bot | trailing-stop + scalping. Featuring trailing-stop and scalping, it's the best choice
 
 
 
